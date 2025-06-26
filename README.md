@@ -41,7 +41,7 @@
 
 点击访问：<a href="https://hl424.pages.dev/"> 揭秘黑料社你的吃瓜新路径</a>
 
-点击访问：<a href="https://hl426.pages.dev/">国内吃瓜爆料黑料社曝门</a>
+点击访问：<a href="https://pi55-01.pages.dev/">Twitter中文版</a>
 
 点击访问：<a href="https://hl423.pages.dev/">51吃瓜黑料社</a>
 
